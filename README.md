@@ -1,2 +1,2 @@
-#blackmirrormabg21.github.io
-https:// blackmirrormabg21.github.io
+#blackmirrormabg21.github.oi
+https:// blackmirrormabg21.github.oi
